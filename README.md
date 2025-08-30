@@ -1,8 +1,6 @@
 ## hi there! 🎧๋࣭ ⭑ 
 ʚ  ゜・。。・ ゜ ʚ♡ɞ   ゜・。。・゜ɞ ʚ  ゜・。。・ ゜ ʚ♡ɞ   ゜・。。・゜ɞ ʚ  ゜・。。・ ゜ ʚ♡ɞ   ゜・。。・゜ɞ 
 
-i think i code ｡𖦹°‧
-
 
 <!--
 **nananananani/nananananani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
